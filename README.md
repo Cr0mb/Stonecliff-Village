@@ -43,3 +43,9 @@ Welcome to **Stonecliff Village**, a community-driven vanilla Minecraft realm! B
 ---
 
 Thank you for following the rules and contributing to our amazing community!
+
+
+![image](https://github.com/user-attachments/assets/659597ec-a09a-471d-994e-744268d6e9f4)
+
+![image](https://github.com/user-attachments/assets/735547aa-95d8-4330-962e-b51e20b15b8b)
+
